@@ -14,30 +14,34 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 ## Education
 
 - [News round](https://www.bbc.co.uk/newsround) - news for kids
-
-#### Coding / logic 
-
+- https://uk.ixl.com/ (costs to join) - personalised learning - maths & english
 - [Hour of code, express course](https://studio.code.org/s/express-2019)
+
+#### Talks and videos
+
+- [Ted talks for with children](https://www.ted.com/playlists/86/talks_to_watch_with_kids)
+- [The kids should see this](https://thekidshouldseethis.com/)
 
 #### Podcasts
 
 - https://www.brainson.org/pages/listen - [Forever ago](https://www.brainson.org/pages/foreverago)
 
-#### Costs to join
-
-- https://uk.ixl.com/ - personalised learning - maths & english
 
 ## Art
 
 - [Draw with Rob](https://www.robbiddulph.com/draw-with-rob) - how to draw cartoon character - 10 min videos
 
 
+## Physical
+
+- [Go noodle](https://family.gonoodle.com/)
+
 ## Other useful places to look
 
 - [Family lock down facebook group](https://www.facebook.com/groups/871176893326326/)
 
 
-## TV
+## TV 
 
 #### BBC
 
