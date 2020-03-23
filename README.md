@@ -16,11 +16,14 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 - [News round](https://www.bbc.co.uk/newsround) - news for kids
 - https://uk.ixl.com/ (costs to join) - personalised learning - maths & english
 - [Hour of code, express course](https://studio.code.org/s/express-2019)
+- [BBC live lessions](https://www.bbc.co.uk/teach/live-lessons) Join the UK’s biggest classroom for a live interactive shared learning experience. BBC Teach Live Lessons bring the curriculum to life with leading experts and access to the BBC’s biggest brands and talent.
 
 #### Talks and videos
 
 - [Ted talks for with children](https://www.ted.com/playlists/86/talks_to_watch_with_kids)
 - [The kids should see this](https://thekidshouldseethis.com/)
+
+
 
 #### Podcasts
 
@@ -35,6 +38,8 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 ## Physical
 
 - [Go noodle](https://family.gonoodle.com/)
+- [Super Movers](https://www.bbc.co.uk/teach/supermovers) collaboration between the BBC and the Premier League to help get kids moving even in limited spaces, and is easy to implement in your own home.
+
 
 ## Other useful places to look
 
