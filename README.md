@@ -39,7 +39,7 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 
 - [Go noodle](https://family.gonoodle.com/)
 - [Super Movers](https://www.bbc.co.uk/teach/supermovers) collaboration between the BBC and the Premier League to help get kids moving even in limited spaces, and is easy to implement in your own home.
-
+- [9am PE classes](https://www.youtube.com/user/thebodycoach1/featured) from the Body Coach TV
 
 ## Other useful places to look
 
