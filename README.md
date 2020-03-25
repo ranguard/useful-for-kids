@@ -18,7 +18,7 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 - [Hour of code, express course](https://studio.code.org/s/express-2019)
 - [BBC live lessions](https://www.bbc.co.uk/teach/live-lessons) Join the UK’s biggest classroom for a live interactive shared learning experience. BBC Teach Live Lessons bring the curriculum to life with leading experts and access to the BBC’s biggest brands and talent.
 - [Science at home](https://www.glasgowsciencecentre.org/gsc-at-home) - Glasgow science centre
-
+- [Learning projects](https://www.robinhoodmat.co.uk/learning-projects/#parents) - 7 weeks of projects 
 
 ##### Maths
 
