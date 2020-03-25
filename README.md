@@ -36,10 +36,10 @@ Please let me know: leo at cuckoo.org if any are great or rubbish or you have ot
 - https://www.brainson.org/pages/listen - [Forever ago](https://www.brainson.org/pages/foreverago)
 
 
-## Art
+## Art and things to do
 
 - [Draw with Rob](https://www.robbiddulph.com/draw-with-rob) - how to draw cartoon character - 10 min videos
-
+- [Activity hub](https://theweekjunior.co.uk/activity-hub) -  fun experiments and exciting activities to do at home from The Week Junior magazine
 
 ## Physical
 
